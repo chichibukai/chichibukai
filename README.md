@@ -1,0 +1,6 @@
+- I’m @chichibukai
+- Im just a normal guy who makes discord bots and generator
+- Im currently learning on php and mysql
+- I dont really have some social meda account if you have some problems of the code do requests
+- Currently living on a good health 
+- I hope you guys as well!
